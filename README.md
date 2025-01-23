@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: crisp
 -  i am Youtuber
 - ⚡ Fun fact: i am to free for you guys and something new
--->Thank 
+-->Thanks
